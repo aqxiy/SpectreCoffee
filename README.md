@@ -6,8 +6,8 @@
 4. 25 sec wait
 5. 25 sec stir with largish teaspoon
 6. 2 minute wait
-7. 1.25 tbsp Dunkin Coffee (Dunkin' Donuts Ground Coffee, Original Blend Medium Roast)
+7. 1.25 tbsp Dunkin Coffee (Dunkin' Donuts Ground Coffee, Original Blend Medium Roast) (off a small ceramic plate for even dist)
 8. 25 sec wait
 9. 25 sec stir
-10. 4.5 min wait
+10. 6.5 min wait
 
