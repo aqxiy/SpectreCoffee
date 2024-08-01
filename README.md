@@ -2,7 +2,7 @@
 
 1. Boil about a cup worth of filtered cold water in an electric kettle. Pour into ceramic cup.
 2. Allow green tea to brew with bag simpled placed atop the hot water for 5 minutes.
-3. Add 1 teaspoon of honey
+3. Add 1.5 teaspoons of honey
 4. 25 sec wait
 5. 25 sec stir with largish teaspoon
 6. 2 minute wait
