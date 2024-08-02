@@ -11,3 +11,4 @@
 9. 25 sec stir
 10. 6.75 min wait
 
+Best aqxiy/sortdrink 3 mins after around 20 raisins on an empty stomach
